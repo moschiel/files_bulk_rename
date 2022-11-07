@@ -1,0 +1,1 @@
+insert here all images to be renamed
